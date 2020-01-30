@@ -1,2 +1,0 @@
-# DennyMoran.github.io
-
